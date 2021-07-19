@@ -55,7 +55,7 @@
 # See how it works v1.0.0
 ----------------------
 - 🔞  v1.0.0
--  https://youtu.be/JH1FwSQ997Q
+- https://youtu.be/VYCFYyJLOMo
 # How to ger:
 ----------------------
 - 📌 Visit our channel or our site to download .
