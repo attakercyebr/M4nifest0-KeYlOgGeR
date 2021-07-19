@@ -20,6 +20,8 @@
 
 -📌 Receive personal information and target privacy violations.
 
+-📌 100% FUD
+
 -📌 The best program written to hack account information on various social networks.
 
 # How to get a license :
